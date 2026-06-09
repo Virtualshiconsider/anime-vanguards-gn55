@@ -1,4 +1,4 @@
-
+anime vanguards new Scripts is the best anime vanguards Script, featuring god mode and no cooldown. Safe and powerful for all your needs.
 
 
 
